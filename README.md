@@ -1,6 +1,3 @@
-![Uploading ChatGPT Image Apr 21, 2026, 08_03_43 AM.png…]()
-
-
 # 🌟 Sobre mí
 
 ## Juan Felipe Baquero de Granada
